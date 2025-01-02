@@ -10,6 +10,6 @@ Instead of making a new place to have all the usernames, I will be making a txt 
 # Updates
 The AntiMinefortClub has increased its numbers and keeps on growing in size, please be careful of who you trust.
 Please do not join this server
-`https://discord.gg/CxfvPXGHVF`
+`https://discord.gg/D3Zdmg6xTk`
 AntiMinefortclub shall perish
 We are watching you if your reading this AntiMinefortclub, we are everywhere.
