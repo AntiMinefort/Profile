@@ -13,3 +13,8 @@ Please do not join this server
 `https://discord.gg/D3Zdmg6xTk`
 AntiMinefortclub shall perish
 We are watching you if your reading this AntiMinefortclub, we are everywhere.
+## Update 2
+I will be making something soon that will be released in 2 weeks, i will be revealing some sneak peaks in here when i feel like it. Please wait patiently while i make it.
+## Discord
+`N/A`
+`Coming Soon!`
