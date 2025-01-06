@@ -16,3 +16,9 @@ Hi, my name is Melanie. I am not someone named RadWolf `I don't know why people 
 My age is 24 and I'm a female.
 My Pronouns are She/Her
 I am usaully shy around new people, but I am really formal sometimes.
+
+# Updates
+I will be making a store here soon, it will be placed on here shortly once when I get it running.
+The store will be used for the smp I will be making soon so, stick around for another update to happen so you never miss it. I do not have the money to make my own website so I will be using a website hosting.
+There will be a lot of things to see and I might add a store on there so, hope to see you there!
+`Store Link N/A`
