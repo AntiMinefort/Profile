@@ -4,3 +4,9 @@ Take it from me, I don't like minefort for doing this but doesn't mean you shoul
 
 # Discord
 `https://discord.gg/DuyxsScTTU`
+
+# Other Stuff
+I now have a place where I put my skripts. Please know that these skripts will not harm your server, it's just for others to grab them if they want to use them. If someone claims to have my file and try to put it in your server, You will see a link leading to my github profile inside the file to know that its was made by me. Hope you enjoy the skripts I lay out for you all. Have A Great Night!
+`https://github.com/AntiMinefort/Skripts`
+## Other Notes
+Pain Screen please remove your amc tools as I no longer want to be spied on.
