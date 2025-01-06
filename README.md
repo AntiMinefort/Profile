@@ -10,3 +10,9 @@ I now have a place where I put my skripts. Please know that these skripts will n
 `https://github.com/AntiMinefort/Skripts`
 ## Other Notes
 Pain Screen please remove your amc tools as I no longer want to be spied on.
+
+# About Me
+Hi, my name is Melanie. I am not someone named RadWolf `I don't know why people are calling me that person, must be famous for something they did` anyways, I have been skripting on minecraft for a while now and would like to make a lot of new friends. I'm not looking for any sort of trouble, I just want to meet new people qnd learn new things.
+My age is 24 and I'm a female.
+My Pronouns are She/Her
+I am usaully shy around new people, but I am really formal sometimes.
